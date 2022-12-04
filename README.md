@@ -1,1 +1,1 @@
-# 🦀 Yooooooo!! 
+Nagano Tamawo
